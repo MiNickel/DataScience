@@ -1,1 +1,2 @@
 - https://news.gallup.com/poll/236813/adults-drive-frequently-fewer-enjoy-lot.aspx -> U.S. Adults Driving Frequency
+- https://www.merkur.de/politik/swing-states-wahl-usa-bedeutung-definition-ohio-pennsylvania-karte-90069281.html -> U.S. Swing States
